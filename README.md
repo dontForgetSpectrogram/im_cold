@@ -1,2 +1,25 @@
 # im_cold
-dont forget spectrogram!
+не забудь спектрограмму!
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
+im cold
